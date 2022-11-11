@@ -1,5 +1,5 @@
 # 💫 About Me:
-Olá!!!! <br>Meu nome é Patrícia !!!<br>Atualmente trabalho na FARFETCH como Accounts Payable Technician
+Olá!!!! <br>Meu nome é Patrícia !!!<br>Atualmente trabalho na FARFETCH como Accounts Payable Technician.
 
 
 ## 🌐 Socials:
